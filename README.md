@@ -1,0 +1,2 @@
+# Men-s-Basketball---Duke-University---Duke-Athletics-latest-news-2026..
+They would later meet Kentucky for another classic regional final game, but blow a 17-point second half lead in losing to the Wildcats. The Blue Devils would lose the 1994 title game to Arkansas and their "Forty Minutes of Hell" defense. The next two seasons would see them fall to just 31–31, though they made the 1996 tournament
